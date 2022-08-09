@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jerrinnah
-- 👀 I’m interested in growing my codinng skills
+- 👀 I’m interested in growing my coding skills
 - 🌱 I’m currently learning futter
 - 💞️ I’m looking to collaborate on annything that helps
 - 📫 How to reach me here
